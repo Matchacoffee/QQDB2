@@ -1,8 +1,4 @@
-QQyambamll 
-is
-ungly
-and 
-he
-has
-no
-head.
+QQyambamll is ungly.
+And he having no head to thinking.
+Everbody is so confusing that can he breath by himself.
+db2
